@@ -1,4 +1,6 @@
-![MOSHED-2022-1-2-14-11-23](https://user-images.githubusercontent.com/96972556/147870135-8c60256a-507f-41d2-ba04-3f46a44c8aa9.gif)
+![MOSHED-2022-1-2-15-38-18](https://user-images.githubusercontent.com/96972556/147872004-569efa75-dfab-433a-9d6a-57f5f6a72d6d.gif)
+![MOSHED-2022-1-2-15-38-50](https://user-images.githubusercontent.com/96972556/147872007-417cc08a-e3b3-41b7-adfb-499953e0b16e.gif)
+
 - 👋 Hi, I’m @x-aminulislam-x
 - 👀 I’m interested in ...!
 - 🌱 I’m currently learning ...
